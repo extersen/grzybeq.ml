@@ -1,2 +1,4 @@
 # grzybeq.ml
-stronka maniola
+chuj kurwa renowacja wejscie od drugiej strony
+Xddddd
+
